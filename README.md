@@ -1,4 +1,4 @@
-## Hi there Eleanor👋
+## Hi there is Eleanor👋
 
 :cat: 
 
