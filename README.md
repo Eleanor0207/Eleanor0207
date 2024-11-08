@@ -1,6 +1,6 @@
-## Hi there 👋
+## Hi there Eleanor👋
 
-:cat: Eleanor
+:cat: 
 
 :專長:
 
